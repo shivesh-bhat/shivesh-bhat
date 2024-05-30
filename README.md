@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **shiveshbhat123@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1tUfz3MbcAJdTstGQPrG1klly_kLV7gvW/view?usp=sharing](https://drive.google.com/file/d/1tUfz3MbcAJdTstGQPrG1klly_kLV7gvW/view?usp=sharing)
+- 📄 Know about my experiences [Shivesh Bhat resume](https://drive.google.com/file/d/1tUfz3MbcAJdTstGQPrG1klly_kLV7gvW/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
